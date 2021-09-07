@@ -1,1 +1,11 @@
-Replace this with a list of your favorite things.
+🍖:smile:
+1. 😄
+2. 😸
+3. 😅
+   1. 😞
+   2. 🤯
+* 🎄
+* 🌴
+  * 💮
+  * 👎
+
